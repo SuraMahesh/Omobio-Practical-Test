@@ -1,1 +1,0 @@
-# Omobio-Practical-Test
